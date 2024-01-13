@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @David201410
+- 👀 I’m interested in a lot of stuff. Crurently looking forward to study more.
+- 🌱 I’m currently doing an apprenticeship as a platform developer in compuer science. 
